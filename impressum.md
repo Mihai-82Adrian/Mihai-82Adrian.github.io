@@ -10,7 +10,7 @@ Deutschland
 
 ## Kontakt
 
-Telefon: +491704740121
+Telefon: +491704740121 \
 E-Mail: mihai.mateescu@web.de
 
 ## Umsatzsteuer
