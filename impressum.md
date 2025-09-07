@@ -3,7 +3,7 @@
 ## Angaben gemäß § 5 TDDG
 
 Mihai-Adrian Mateescu \
-Der Abgrund \
+MindHafen \
 Bahnhofstraße 65B \
 21218, Seevetal, Niedersachsen \
 Deutschland
