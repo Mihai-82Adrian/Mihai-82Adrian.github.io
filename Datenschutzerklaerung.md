@@ -1,6 +1,6 @@
-# Datenschutzerklärung für den YouTube-Kanal "Der Abgrund"
+# Datenschutzerklärung für den YouTube-Kanal "MindHafen"
 
-**Stand:** 20. Juli 2025
+**Stand:** 07. September 2025
 
 ---
 
