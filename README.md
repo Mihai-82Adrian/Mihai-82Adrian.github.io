@@ -8,6 +8,8 @@ Hier findest du beruhigende Musik, Naturgeräusche, geführte Meditationen und K
 
 👉 Abonniere jetzt und mach MindHafen zu deinem täglichen Ritual für Ruhe und Klarheit.
 
+±++++++++++++++++++++++++++++
+
 Welcome to MindHafen – your safe harbor for sleep, relaxation and focus. 🌙🌊
 Discover calming music, nature sounds, guided meditations and soundscapes to help you sleep better, release stress and boost concentration.
 
